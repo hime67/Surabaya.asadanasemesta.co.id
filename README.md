@@ -1,1 +1,0 @@
-# Surabaya.asadanasemesta.co.id
